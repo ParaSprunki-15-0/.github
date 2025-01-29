@@ -4,7 +4,7 @@ Parasprunki 15.0 is the latest evolution in fan-made mods inspired by the iconic
 
 Parasprunki 15.0 is more than just a music creation tool—it’s a dynamic playground for sound and rhythm. Players are tasked with building unique tracks by strategically placing characters on a virtual stage, each representing distinct sound elements. The game’s innovative mechanics and upgraded features make it a standout in the world of music-based gaming.
 
-[Play Now](https://scrunkly.cc/game/parasprunki-15-0)
+👉👉 Click to play [Parasprunki 15.0](https://sprunkly.org/game/parasprunki-15-0)
 
 
 
